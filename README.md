@@ -18,4 +18,4 @@ Facebook: https://www.facebook.com/kimchisocks
 
 YouTube: https://www.youtube.com/channel/UC1aGcMEbSIm0WSQaCydCyhQ
 
-
+Reddit: https://www.reddit.com/r/Soxchain/
