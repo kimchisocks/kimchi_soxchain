@@ -28,6 +28,10 @@ Medium: https://medium.com/@kimchisoxchain
 
 Reddit: https://www.reddit.com/r/Soxchain/
 
+Discord: https://discord.gg/hJwKguE
+
+Telegram: https://t.me/soxchain
+
 LinkedIN: https://www.linkedin.com/company/kimchi-socks-llc/
 
 Instagram: https://instagram.com/kimchisocks
